@@ -1,6 +1,6 @@
 
 # <cheyoutv在线视频> 官方最新地址发布 
-## 网站永久入口：http://chyoutv.com   简记：“车友TV” 的缩写
+## 网站永久入口：http://cheyoutv.com   简记：“车友TV” 的缩写
 ## ⭐️ 👉 最新主站地址一 ：http://av7.app  
 ## ⭐️ 👉 备用地址二 ：http://av2.baby
 ## 导 航 永 久 域 名   http://av1.baby
